@@ -1,6 +1,6 @@
 
 # <center> 机场推荐:[速鹰666](https://suying00.com/auth/register?code=dF7y) 
-# <center> 机场推荐:[极客云](https://jike251.xyz/auth/register?code=DOYt) 
+# <center> 机场推荐:[极客云](https://jikebb.xyz/auth/register?code=DOYt) 
 
 
 <!-- ### <center> [奇の旅](https://www.q1travel.cloud/aff.php?aff=5290)
