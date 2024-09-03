@@ -1,9 +1,8 @@
-## 2024.3更新,以下机场可能需要翻墙打开
+## 2024.9更新,以下机场可能需要翻墙打开
 
-### <center> [几鸡](https://j03.tbcache.us/waf/HDU12) 
-### <center> [速鹰666](https://sy7770.com/auth/register?code=dF7y) 
-### <center> [极客云](https://jikeq87.xyz/auth/register?code=DOYt) 
-### <center> [1UPS.TOP](https://1ups.top/register?aff=156357)
+### <center> https://j03.tbcache.us/waf/HDU12
+### <center> https://sy7770.com/auth/register?code=dF7y
+### <center> https://jike7.net/auth/register?code=DOYt
 
 
 
