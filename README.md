@@ -1,8 +1,8 @@
-## 2024.9更新,以下机场可能需要翻墙打开
+## 2025.11更新,以下机场可能需要翻墙打开
 
 ### <center> https://j03.tbcache.us/waf/HDU12
 ### <center> https://sy7770.com/auth/register?code=dF7y
-### <center> https://jike7.net/auth/register?code=DOYt
+### <center> https://jikefind.net/auth/register?code=DOYt
 
 
 
