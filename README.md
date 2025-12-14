@@ -1,8 +1,8 @@
 ## 2026.01更新,以下机场可能需要翻墙打开
 
-### <center> https://j05.tbcache.us/waf/HDU12
-### <center> https://sy7770.com/auth/register?code=dF7y
-### <center> https://jikefind.net/auth/register?code=DOYt
+### <center> [几鸡](https://j05.tbcache.us/waf/HDU12)
+### <center> [速鹰666](https://sy7770.com/auth/register?code=dF7y)
+### <center> [极客云](https://jikefind.net/auth/register?code=DOYt)
 
 
 
